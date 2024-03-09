@@ -1,1 +1,1 @@
-This is my collaborative Mini Project for SE with swati dubey.
+This is my collaborative Mini Project for SE with @itsswatidubey and @MahekAmesur
